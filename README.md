@@ -1,1 +1,0 @@
-# Vicenteguallpa.github.io
